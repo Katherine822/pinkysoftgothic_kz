@@ -1,0 +1,1 @@
+# pinkysoftgothic_kz
